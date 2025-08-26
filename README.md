@@ -1,1 +1,0 @@
-# shaikh-irfaan-surti
